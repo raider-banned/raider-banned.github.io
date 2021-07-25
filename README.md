@@ -1,2 +1,2 @@
 # raider-banned.github.io
-website
+сайт бля ахахахахах
